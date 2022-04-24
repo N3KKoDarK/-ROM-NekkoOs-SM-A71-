@@ -29,7 +29,7 @@ Data:22/4/2022
 -Samsung account and its services were deleted
 
 
-*Flash in super*
+*Flash in super* (Debe estar en Stock A12)
 
 
 Note:In 2 days of use, I have had no problems with absolutely nothing, everything functional and good autonomy, much better than before. Any problem you can write to me and share it. Enjoy😊
